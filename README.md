@@ -22,3 +22,4 @@
 #### 五、持续更新，千万别催
 ****
 微信搜索 [**海蓝酱**] ，第一时间阅读或者扫描下方的二维码。
+![image](https://github.com/flyinglf-use/hailanjiang/blob/main/images/wx.gif)
